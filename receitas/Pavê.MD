@@ -69,5 +69,5 @@
 
 ### Referências :bookmark_tabs:
 
-[ id ]: https://www.tudogostoso.com.br/receita/15939-pave-de-chocolate.html
+https://www.tudogostoso.com.br/receita/15939-pave-de-chocolate.html
 

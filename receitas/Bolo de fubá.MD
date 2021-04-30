@@ -22,5 +22,5 @@
 
 ### Referências :bookmark_tabs:
 
-[id]: https://www.tudogostoso.com.br/receita/9254-bolo-de-fuba.html
+https://www.tudogostoso.com.br/receita/9254-bolo-de-fuba.html
 

@@ -38,5 +38,5 @@
 
 ##### Referências :bookmark_tabs:
 
-[ id ]: https://www.tudogostoso.com.br/receita/876-lasanha-de-carne-moida.html
+https://www.tudogostoso.com.br/receita/876-lasanha-de-carne-moida.html
 
