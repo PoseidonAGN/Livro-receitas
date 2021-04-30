@@ -35,3 +35,8 @@
 10. Despeje uma parte do **molho à bolonhesa** em um refratário, a metade da massa, a metade do presunto, a metade da mussarela, todo o molho branco e o restante da massa.
 11. Repita as camadas até a borda do recipiente.
 12. Finalize com o queijo ralado e leve ao forno alto (220° C), preaquecido, por cerca de 20 minutos.
+
+##### Referências :bookmark_tabs:
+
+[ id ]: https://www.tudogostoso.com.br/receita/876-lasanha-de-carne-moida.html
+
